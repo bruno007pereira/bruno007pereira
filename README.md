@@ -13,7 +13,7 @@ bruno.pereira.luz@escola.pr.gov.br
 
 @p3rei4a
 
-
 🎼 🧿 🧿 🧿 🎼
+
 
 ![](https://media.tenor.com/prT_agJ7F98AAAAd/the-rock-the-rock-sus.gif)
