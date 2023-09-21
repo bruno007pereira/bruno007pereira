@@ -14,3 +14,5 @@ bruno.pereira.luz@escola.pr.gov.br
 @p3rei4a
 
 ![descrição do GIF](link GIF do Tenor)
+
+🎼 🧿 🧿 🧿 🎼
