@@ -16,4 +16,4 @@ instagram: @p3rei4a
 🎼 🧿 🧿 🧿 🎼
 
 
-![](https://media.tenor.com/prT_agJ7F98AAAAd/the-rock-the-rock-sus.gif)
+![](https://media.tenor.com/bwwroaApm60AAAAd/haha-lol.gif)
