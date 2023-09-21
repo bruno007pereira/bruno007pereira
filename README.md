@@ -11,7 +11,7 @@ Meu nome é Bruno pereira da luz
 
 bruno.pereira.luz@escola.pr.gov.br
 
-@p3rei4a
+instagram: @p3rei4a
 
 🎼 🧿 🧿 🧿 🎼
 
