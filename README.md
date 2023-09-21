@@ -17,5 +17,4 @@ bruno.pereira.luz@escola.pr.gov.br
 
 🎼 🧿 🧿 🧿 🎼
 
-![]()
-https://media.tenor.com/prT_agJ7F98AAAAd/the-rock-the-rock-sus.gif
+![](https://media.tenor.com/prT_agJ7F98AAAAd/the-rock-the-rock-sus.gif)
